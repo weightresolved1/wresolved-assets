@@ -1,0 +1,1 @@
+Weight, Resolved — image assets
